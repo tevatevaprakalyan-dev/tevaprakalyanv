@@ -1,2 +1,2 @@
 # tevaprakalyanv
-tevaprakalyanv description
+tevaprakalyanv description is verified
